@@ -1,1 +1,0 @@
-# thelazyperson.github.io
